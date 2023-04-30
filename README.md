@@ -1,1 +1,1 @@
-# Web page for Mercedes AMG GLE 63 S COUPE
+# Web page for Mercedes AMG model GLE 63 S COUPE
