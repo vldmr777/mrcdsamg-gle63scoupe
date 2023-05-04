@@ -9,4 +9,4 @@ Inside, the GLE 63 S Coupe features a luxurious cabin with premium materials and
 
 Safety features include active brake assist, lane departure warning, and adaptive cruise control, as well as a 360-degree camera system and park assist. With its combination of luxury, performance, and technology, the Mercedes-AMG GLE 63 S Coupe is a top-tier SUV coupe that offers a truly exceptional driving experience. 
 
-<sup>*To learn more about the Mercedes-AMG GLE 63 S Coupe, you can visit the official Mercedes-Benz website or the dedicated AMG website.*</sup>
+<sup>* *To learn more about the Mercedes-AMG GLE 63 S Coupe, you can visit the official Mercedes-Benz website or the dedicated AMG website.*</sup>
